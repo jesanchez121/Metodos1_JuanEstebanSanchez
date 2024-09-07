@@ -1,1 +1,1 @@
-# Metodos1_JuanEstebanSanchez_JosephDavidSimahan
+# Metodos1_JuanEstebanSanchez
